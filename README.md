@@ -1,1 +1,1 @@
-# lab-6
+# lab-6_Abramchuk_Pavlo_IS-01
